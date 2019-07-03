@@ -1,2 +1,0 @@
-# ahmadvertising
-Ahm Advertising
